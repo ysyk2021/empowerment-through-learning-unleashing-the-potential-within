@@ -1,4 +1,4 @@
-Chapter 5: Building a Supportive Learning Environment: Understanding the Importance of a Supportive Learning Environment
+Understanding the Importance of a Supportive Learning Environment
 ========================================================================================================================
 
 Building a supportive learning environment is essential for achieving personal and professional growth through lifelong learning. In this chapter, we will explore the importance of a supportive learning environment and how to create one.

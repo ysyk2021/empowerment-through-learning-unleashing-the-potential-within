@@ -1,4 +1,4 @@
-Chapter 3: Exploring Different Learning Styles: Techniques for Identifying One's Learning Style
+Techniques for Identifying One's Learning Style
 ===============================================================================================
 
 Identifying one's learning style is an important step towards optimizing the learning experience. In this chapter, we will explore techniques for identifying one's learning style and understanding how to tailor study habits to accommodate individual learning preferences.

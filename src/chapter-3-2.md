@@ -1,4 +1,4 @@
-Chapter 2: Identifying Personal Motivations and Goals: Techniques for Identifying Personal Motivations and Goals
+Techniques for Identifying Personal Motivations and Goals
 ================================================================================================================
 
 Identifying personal motivations and goals is an important step towards unleashing our potential through learning. In this chapter, we will explore techniques for identifying personal motivations and goals.

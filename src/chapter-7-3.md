@@ -1,4 +1,4 @@
-Chapter 6: Continuing Lifelong Learning for Empowerment: Addressing Common Challenges in Continuing Learning
+Addressing Common Challenges in Continuing Learning
 ============================================================================================================
 
 Continuing lifelong learning can be challenging due to various factors such as lack of time, competing priorities, or feeling overwhelmed. In this chapter, we will explore common challenges in continuing learning and techniques for addressing them.

@@ -1,4 +1,4 @@
-Chapter 5: Building a Supportive Learning Environment: Encouraging Diverse Perspectives and Backgrounds for Better Learning Outcomes
+Encouraging Diverse Perspectives and Backgrounds for Better Learning Outcomes
 ====================================================================================================================================
 
 A supportive learning environment is one that values and encourages diverse perspectives and backgrounds. In this chapter, we will explore the importance of diversity in the learning process and provide strategies for building a supportive learning environment that fosters inclusivity.

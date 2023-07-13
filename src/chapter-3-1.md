@@ -1,4 +1,4 @@
-Chapter 2: Identifying Personal Motivations and Goals: The Role of Personal Motivations and Goals in Learning
+The Role of Personal Motivations and Goals in Learning
 =============================================================================================================
 
 Personal motivations and goals play a critical role in learning. In this chapter, we will explore the importance of personal motivations and goals in learning and how they can help individuals unleash their full potential.

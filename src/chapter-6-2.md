@@ -1,4 +1,4 @@
-Chapter 5: Building a Supportive Learning Environment: Techniques for Building a Supportive Learning Environment
+Techniques for Building a Supportive Learning Environment
 ================================================================================================================
 
 Building a supportive learning environment is essential for achieving personal and professional growth through lifelong learning. In this chapter, we will explore some techniques for building a supportive learning environment.

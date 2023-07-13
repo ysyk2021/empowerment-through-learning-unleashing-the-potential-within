@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [The importance of continuous learning for personal and professional growth](chapter-1-1.md)
   - [What is empowerment through learning?](chapter-1-2.md)
   - [Benefits of empowering oneself through learning](chapter-1-3.md)
@@ -35,9 +34,5 @@
   - [Techniques for continuing lifelong learning](chapter-7-2.md)
   - [Addressing common challenges in continuing learning](chapter-7-3.md)
   - [Building a sense of purpose and meaning through lifelong learning](chapter-7-4.md)
-- [Conclusion](chapter-8.md)
-  - [Recap of key takeaways](chapter-8-1.md)
-  - [Final thoughts on empowerment through learning](chapter-8-2.md)
-  - [Encouragement to apply these principles in your own learning and growth journey](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

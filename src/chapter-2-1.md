@@ -1,4 +1,4 @@
-Chapter 1: Understanding the Power of Learning: Overview of Learning Theory
+Overview of Learning Theory
 ===========================================================================
 
 Learning theory is the study of how individuals acquire new knowledge and skills. Understanding learning theory can provide insight into how individuals learn and improve the effectiveness of the learning experience.

@@ -1,4 +1,4 @@
-Chapter 5: Building a Supportive Learning Environment: Building a Sense of Community Among Learners
+Building a Sense of Community Among Learners
 ===================================================================================================
 
 A supportive learning environment is one that fosters collaboration, communication, and a sense of belonging among learners. In such an environment, learners feel safe to express their thoughts and ideas, take risks, and learn from their mistakes. This chapter will explore the importance of building a sense of community among learners and provide strategies for creating a supportive learning environment.

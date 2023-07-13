@@ -1,4 +1,4 @@
-Chapter 2: Identifying Personal Motivations and Goals: Incorporating New Learnings into Daily Life
+Incorporating New Learnings into Daily Life
 ==================================================================================================
 
 To make the most of our learning experiences, it is important to understand our personal motivations and goals. In this chapter, we will explore ways to identify personal motivations and goals, as well as strategies for incorporating new learnings into daily life.
