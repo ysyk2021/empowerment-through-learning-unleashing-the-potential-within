@@ -8,5 +8,4 @@ We believe that everyone has the capacity for learning and growth, regardless of
 
 Join us on this journey of discovery, as we explore the many ways in which learning can transform your life and help you achieve your most significant aspirations. Whether you are just starting out on your path of self-discovery or are a seasoned learner seeking new challenges, this book has something to offer for everyone.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
