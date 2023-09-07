@@ -1,5 +1,3 @@
-What is Empowerment Through Learning?
-===================================================
 
 Empowerment through learning is the process of gaining knowledge and skills that enable individuals to take control of their lives and achieve their desired outcomes. By embracing a growth mindset and committing to lifelong learning, individuals can unleash their full potential and improve their personal and professional well-being.
 
