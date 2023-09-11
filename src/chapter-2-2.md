@@ -1,5 +1,4 @@
-Chapter: Identifying Different Types of Learning
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of empowerment through learning, understanding the diverse ways in which individuals acquire knowledge and skills is fundamental. This chapter delves into the exploration of various types of learning, highlighting their unique characteristics, benefits, and implications for unleashing the potential within.
 

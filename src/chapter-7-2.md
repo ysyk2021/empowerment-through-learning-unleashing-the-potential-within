@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Continuing Lifelong Learning
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Lifelong learning is a journey that transcends age and circumstance, empowering individuals to continually expand their knowledge and horizons. In this chapter, we will explore a variety of effective techniques that will enable you to embrace and sustain lifelong learning, ensuring you unleash your full potential within.
 

@@ -1,5 +1,4 @@
-Chapter 5: Incorporating New Learnings into Daily Life
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential steps and strategies for effectively incorporating new learnings into your daily life. Learning is a lifelong journey, and the true value of knowledge lies in its application. By mastering the art of integrating new knowledge into your daily routine, you can unlock your full potential and empower yourself in various aspects of life.
 

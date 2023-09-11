@@ -1,5 +1,4 @@
-Chapter 9: Addressing Common Challenges in Continuing Learning
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Continuing your learning journey is a noble pursuit, but it's not without its challenges. In this chapter, we will explore common obstacles that individuals encounter when striving to continue their learning efforts and provide strategies to overcome them. By understanding and addressing these challenges, you can enhance your ability to unleash your potential through lifelong learning.
 

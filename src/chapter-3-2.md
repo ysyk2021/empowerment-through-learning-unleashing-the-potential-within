@@ -1,5 +1,4 @@
-Chapter: Techniques for Identifying Personal Motivations and Goals
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest for empowerment through learning, understanding one's personal motivations and setting meaningful goals is essential to unlock one's true potential. This chapter explores various techniques to help individuals delve into their motivations, aspirations, and goals, creating a roadmap for their learning journey.
 
